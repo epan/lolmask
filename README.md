@@ -1,0 +1,2 @@
+# lolmask
+for trollmask store
